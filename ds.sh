@@ -1,10 +1,1 @@
-z
-j
-k
-kkj
-kk
-h
-n
-n
-n
-n
+gnfh
